@@ -1,6 +1,4 @@
-# Yay-test
-yay idk how to use this ok
-trying to do intro now, SINCE EVERY ACCOUNT OFF EVERYTHING DOESNT WORK
+# INTROOOOOOO
 
 Hi gang, sorry if this may be confusing, but I've just had to switch accounts. so if you've followed my other keikei one, I no longer use that account. So, yeuh yeuh 😸
 anyway, INTRO
